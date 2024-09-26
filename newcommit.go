@@ -1,6 +1,3 @@
-new commit
-vadv
 vaqe
 vaed
-rfkq32klf wkl  new commit
-dav
+rfkq32klf wkl
